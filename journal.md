@@ -2,4 +2,4 @@ Blood is Delicious
 
 By: Vlad Dracula
 
-Part 1
+Part 1: Vampires like blood
